@@ -3548,3 +3548,9 @@ But I'm not gonna lie down until I get there.
 > "Hijo, cuando participes en eventos deportivos, no importa si ganas o pierdes sino cuánto te emborrachas"
 
 *Homer J. Simpson*
+
+---------
+
+> "When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way."
+
+*Wayne Dyer*
